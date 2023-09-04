@@ -1,4 +1,4 @@
-# Sai Kumar Toppae Sethu Raman
+# Sai Kumar Thoppae Sethu Raman
 
 👋 Hey there, I'm Sai Kumar! 🚀
 - 🎓 MS in Data Science student @ University at Buffalo
